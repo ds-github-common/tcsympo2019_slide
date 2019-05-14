@@ -1,1 +1,0 @@
-# tcsympo2019_slide
